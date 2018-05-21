@@ -18,4 +18,4 @@ es cuando vuelve a suceder, inesperadamente nos volvimos a ver es extraño pues 
 ## Immerse Yourself
 Sí, lo sé, usé Spanglish, perdón por ti. Pero vamos que esta es una historía muy larga tendrás que sumergirte también, pero dependerá de ti en que.
 
-`Música, Flores y mucha tristeza - DaftKaren`
+`Azucar, flores y mucha tristeza - daftkaren`
